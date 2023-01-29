@@ -1,2 +1,2 @@
 E-commerce server side
-![closeup-shot-two-pretty-afro-american-girls-using-their-phones-while-holding-shopping-bags](https://user-images.githubusercontent.com/102425003/215322685-270c0503-fdd5-40bd-b29d-f5d5a649b055.jpg)
+![sangga-rima-roman-selia-RUA9K_rEzq4-unsplash](https://user-images.githubusercontent.com/102425003/215323010-46e1898c-315f-4a09-aa66-55edb210dab7.jpg)
